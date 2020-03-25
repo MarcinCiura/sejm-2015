@@ -1,0 +1,1 @@
+[See this blog post](https://marcinciura.wordpress.com/2015/07/01/the-vector-space-of-the-polish-parliament-in-pictures/)
